@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ciaraboi
+- 👋 Hi, I’m Ciara
 - 👀 I’m interested in arts and culture, travel, books, and photography
 - 🌱 I’m currently learning how to code and improving on my academic skills
 - 📫 You may reach me thru discord ciaraboi#0706 or twitter @ciaraboi
